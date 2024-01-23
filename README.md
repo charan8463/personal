@@ -1,3 +1,3 @@
 # personal
 <br>
-Charan Teja
+Charan Teja (DUCS)
